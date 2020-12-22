@@ -1,0 +1,2 @@
+# kir
+Kyrgyz
